@@ -11,3 +11,7 @@
 HE'S MY SON, HE'S ALIVE AND WELL (Him and Chii-chii are siblings aka Canon and OC, I DONT SHIP THEM ISTG IM GONNA THROW CHEESE AT YOU)
 
 You can check out my Strawpage for more information hehe :3
+
+<img width="2048" height="945" alt="f1c2dbf9-fc00-44a9-9b5e-4c26550943b6" src="https://github.com/user-attachments/assets/25257dee-566f-4182-a9a1-ced6942a8839" />
+
+PHILIPPINES' #51 IXIA PLAYER!!! >:DD (fear me/jk)
